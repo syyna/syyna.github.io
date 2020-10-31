@@ -1,2 +1,0 @@
-# syyna.github.io
-Blog
