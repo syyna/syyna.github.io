@@ -1,1 +1,11 @@
-Take 4 on this markdown as html thing =)
+# Markdown Practice
+That's a H1
+
+## H2
+This is a H2
+
+### Unordered Lists
+* list1
+* list2
+* list3
+
