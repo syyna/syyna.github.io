@@ -1,4 +1,4 @@
-#Love Sense Book Review
+# Love Sense Book Review
 [Review on Goodreads](https://www.goodreads.com/review/show/5909849831)
 
 After reading "The All or Nothing marriage", I saw several comments on Goodreads that "Love Sense" by Sue Johnson is a better read on the same topic, so I checked it out.  My thoughts are that the comments were correct, "Love Sense" is a MUCH better read on pretty much the same topic.  Whereas "The All or Nothing Marriage" spends a lot of time on the history, needs, and philosophy on Marriage, Love Sense just jumps right into the topic of "This is why romantic relationships fails, and these are some of the things you can do to keep things working".
