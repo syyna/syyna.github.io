@@ -1,4 +1,4 @@
-# Sane as Ever
+# Same as Ever
 [Goodreads Review](https://www.goodreads.com/review/show/6147125818)
 
 This book is a very short book that's filled with a lot of truisms. There's a bunch of interesting concepts, but nothing is explored very deeply and i suspect the concepts/truisims falls apart on close analysis. The premise of the book is that while situations change, human behavior is mostly going to be more or less the same. It doesn't matter how much history someone reads, its not going to prevent prior history from repeating again, even if the trappings are the same.
