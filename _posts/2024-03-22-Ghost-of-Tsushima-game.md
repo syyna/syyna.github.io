@@ -20,12 +20,3 @@ The story is another issue I had with the game.  It dragged on for a bit too lon
 
 All in all, I still recommend the game, its a solid 3.5* for me and a very easy plat (less than 30 hours).  Just do not go into it looking for something beyond a very pretty game.
 
-
-A stub review:
-
-* Very close to Witcher 3
-* Game is beautiful
-* A bit of a chore towards the end
-* No challenge once you get half the skills, all ghost skills makes the game even easier and you need to challenge yourself to make it harder, even at the hardest difficulty level
-* Game story kinda makes no sense, they try to make it like Kurosawa, but it fails.  All the looks, none of the story, none of the real emotional stories.
-*  Tried too hard to fit all the biomes into a small game.
