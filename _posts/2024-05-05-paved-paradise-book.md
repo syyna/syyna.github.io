@@ -1,0 +1,16 @@
+# Paved Paradise: How Parking Explains the World
+[Goodreads Review](https://www.goodreads.com/review/show/6480209930)
+
+This is one of those books that educates you as to how the world got to be how it is. Its much like the other book "Sickening" that I read earlier this year in that you learn a lot, you get angry a lot, and then you realize that there is no good fix for the situation.
+
+This book is mostly about parking, or really, how parking spots decides a lot of urban planning in cities, in suburbs, and pretty much anywhere you want to go. You ever wonder why high density housing is hard to build in the US? Its because in a lot of cities, there are parking minimums. You want to know why affordable housing is hard to build in the US? Its because for every affordable apartment you build, you have to build 2 to 3 empty spots that you don't really sell for parking. You live in an exclusive neighborhood and you don't want any new housing built near you? You lobby for more parking for any new housing, and immediately developers run away.
+
+The book starts off with a parking lot rage example, where people are fighting over parking spots, and then gets into a few examples where an affordable housing situation in San Diego got stymied because of local politics, nimby'ism, and ultimately, parking minimums. There are other examples of parking preventing housing, affordable or otherwise throughout the book, but by and large, this is one big reason why more housing has not been built in the US for the last 50 years.
+
+Another great example in the books is when Chicago basically sold their parking meter operations to an investment bank, only to find out that they sold it for way too cheap. The reason for this? They hired a 3rd party firm who was basically double billing both the City of Chicago as well as the investment bank to write a favorable proposal in favor of the investment bank. Due diligence and basic intelligence was not in display, and now the city cannot even install bike lanes without paying a fee to the investment bank for revenue loss. At the least, the political consequence for that was that the City mayor was not re-elected.
+
+The rest of the book is like this, mostly giving you statistics about just how much parking there is (more than there are people) because frequently, businesses and even apartments are required to build for the max, and there often isn't a max occupancy situation. Most parking lots are empty most of the time, and when they aren't in use, its ugly, a heat sink, and has no other purpose. Simply put, there's a societal and monetary cost for free parking.
+
+The problem i have with the book is mostly that there isn't much of a solution. Some cities are doing better with smart parking meters which raise and lower rates based on use and to encourage more movement of cars, but by and large, the only solution to less parking spots is a society that drives less. That is probably not very realistic in that its not going to happen in my lifetime, but it is something I can probably do by moving somewhere where more public transportation is likely.
+
+Still, a recommended book. There's so much you'll learn about this, either in urban planing, history or otherwise. Don't let the lack of solutions bother you, its probably mostly an american problem anyway. =)

@@ -1,0 +1,18 @@
+# Klara and the Sun
+[Goodreads Review](https://www.goodreads.com/review/show/6480210858)
+
+It took me more than a few chapters to realize that Kazuo Ishiguro is an author that I've heard of many times, but never actually read. I think I must have him confused with Haruki Murakami, and yes, this happens even to asian (hey we all look alike..?).
+
+In any case, as the first book that I've read from Kazuo Ishiguro, I must say this was a weird one. I'll probably have to make it up by reading "Remains of the Day" later, but for now, I have to say this book straddles one of those weird spaces between science fiction and societal commentary. In the sense that all books are probably really about societal commentary, I'll have to say this one really goes out of its way to comment on certain topics.
+
+Sometime in the far future, there exist stores that sells Artificial Friends (AFs for short), or basically robots that are set in the 11 to 15 age range and exist to provide companionship to a boy or a girl. The story revolves around one such AF as she exists in the store, waiting to be bought. The store sells a variety of these AFs, from various different versions, and either unbeknownst to its manufacturer, or maybe they know but they don't care, each AF is very unique and even within the same generation, they can have different levels of intelligence, abilities, and other such differences. This is seen as one of the other AFs of her generations is seen to be much less intelligent or superficial. The first act of the book is mostly the setup.
+
+The next act of the book is after she gets bought by an affluent family with a sickly child. She is then introduced to the family and her surroundings, and that's when the reader is introduced to some kids being "uplifted". And the uplift process (which apparently grants them more intelligence or something) has a possibility of making them sick and maybe never getting better. You're also introduced to a boy who has not been uplifted and is clearly still talented. So I'm not sure why anyone would bother uplifting their kids. Its not like intelligence and going to college has been any guarantee of success, but maybe in this universe it works that way (but clearly not, since you see people still get laid off and what not).
+
+the last part of the book is just about the journey of the AF Klara and her quest to make her owner get better. I won't bother spoiling the ending, but it ends pretty much how you expect.
+
+The whole perspective is written from the POV of Klara, and you're supposed to see the world much like she sees it. Without understanding much of the world and how it works. You just see and know what she goes through, and I have to say that's the biggest problem I have with the book. If the societal commentary is how "wouldn't it be nice if we all had someone we could depend on and talk to, and that an android friend fits the bill", the book made a lousy case of it. Klara isn't of much use to the girl that bought her, yes, she goes on a quest to save her, but the whole section of it plays out much like a hallucination would. I'd put Klara in the role of unreliable narrator mostly because she doesn't understand so much.
+
+I understand books are better when they are "show, not tell", but with so little being given to the readers, you're just left to speculate about why things are the way they are. I've to put it down to perhaps lazy writing (so the author doesn't have to do any world building beyond what he puts in front of Klara's eyes), or that maybe i just don't understand the point he's going for.
+
+In any case, wholly unsatisfying read. I kept hoping for a good payoff and it just never came. Not recommended.
