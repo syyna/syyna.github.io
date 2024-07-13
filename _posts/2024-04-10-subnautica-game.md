@@ -1,4 +1,5 @@
 # Subnautica
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/subnautica/D0JigIXm)
 
 Subnautica is what happens when you take minecraft, simplify the crafting and then add in quite a decent story and adventure to it.  You start off the game stranded in an ocean world, aboard a life raft, and given few clues or resources, and then start off to see what you can make of the world.
 

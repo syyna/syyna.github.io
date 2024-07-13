@@ -1,4 +1,5 @@
 # God of War: Ragnarok DLC Valhalla Review
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/god-of-war-ragnarok-valhalla/Qu_6__DW)
 
 Right on the heel of finishing GoW: Ragnarok, I dived right into the DLC, Valhalla.  This DLC radically changes the game up by turning an action RPG into basically a rouge lite game.  The way they did it was by taking all the power ups that your weapons/upgrades gave you and turn them into abilities you can get on a per-run basis.
 

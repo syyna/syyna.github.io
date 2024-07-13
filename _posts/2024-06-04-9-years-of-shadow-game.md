@@ -1,5 +1,6 @@
 # 9 Years of Shadows
 [Steam Review:](https://steamcommunity.com/id/usagichan/recommended/1402120?snr=1_5_9__402)
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/9-years-of-shadows/d6FN4R3D)
 
 I got this game as part of Humble's Metrodvania bundle, but its been a game that I've had on my wish list for some time.  I'm a fan of the metrodvania genre, and have played most of the major hits in the genre over the years.  Unlike some folks, I'm mostly a fan of the "vania" part of metroidvania having bounced off pretty hard off Metroid in my early years of video gaming.  I can safely say that the first Metroidvanias that really captured me were both Symphony of the Night as well as the GBA games Circle of the Moon and the like.
 

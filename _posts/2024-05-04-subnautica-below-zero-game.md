@@ -1,4 +1,5 @@
 # Subnautical: Below Zero
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/subnautica-below-zero/ag3afDN5)
 
 Below Zero is the DLC'esque follow up to the smash hit Subnautica.  Coming out a few years after the original Subnautica, the game returns you back to the watery planet of 4546b and puts you in the shoes of a new protagonist, now both named and voiced.  The original Subnautica also put you in the shoes of a named protagonist, but it wasn't obvious and you had to work a bit to find out his name.
 
@@ -18,7 +19,7 @@ Partly this is explained by the fact that we've done it all before. There's real
 
 When you're not towing, the sea truck has basically the same manuverbility of the sea moth, if not the speed.  It can fit in tiny spaces and you can upgrade it to withstand deeper pressures.
 
-All in all, having played both games back to back, I appreciate the difficulty that the deveolopers had with this DLC.  How to make something new, that's not just remaking subnautica, and in a new environment without re-creating everything.  These set of compromises made the game difficult for the devs to balance and make sense, and they did the best of it.
+All in all, having played both games back to back, I appreciate th[e difficulty that the deveolopers had with this DLC.  How to make something new, that's not just remaking subnauti](https://ggapp.io/usagichann/reviews/subnautica-below-zero/ag3afDN5)ca, and in a new environment without re-creating everything.  These set of compromises made the game difficult for the devs to balance and make sense, and they did the best of it.
 
 I still recommend it, but maybe play this game with some gap between subnautica and below zero.
 

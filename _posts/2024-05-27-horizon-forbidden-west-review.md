@@ -1,4 +1,5 @@
 # Horizon: Forbidden West
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/horizon-forbidden-west/cYPOyUyJ)
 
 My impression of Horizon: Zero Dawn from about 5 or 6 years ago (it was released in 2017 but as with everything, I play games a few years after release to capitalize on sales and such), was that it was a cute game.  Its very arrow-centric with a few lousy moves for melee, and the premise was about as ridiculous as it comes.  You have this super civizliation that came tumbling down becuase of one evil man, and opposing him is this other avatar of everything good, and a few thousand years later, this avatar is reborn into a native american-like society and they hunt ROBOT animals.
 

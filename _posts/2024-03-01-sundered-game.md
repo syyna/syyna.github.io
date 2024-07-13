@@ -1,4 +1,5 @@
 # Sundered: Eldritch Edition Review
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/sundered/MUFDdGhw)
 
 This is a review that's probably at least 4 or 5 years late, but better late than never right?
 

@@ -1,5 +1,6 @@
-# Doki Doki Literature Club Review
+# Double Dragon Neon Review
 [Steam Review](https://steamcommunity.com/id/usagichan/recommended/252350?snr=1_5_9__402)
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/double-dragon-neon/_CInHTBG)
 
 I recently had time to replay this on a February trip. It made extensive use of my steam deck and this just seemed like a fun romp through memory lane.
 
