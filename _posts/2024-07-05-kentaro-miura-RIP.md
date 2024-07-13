@@ -1,4 +1,4 @@
-# Service Model
+# Berzerk Vol 41
 [Goodreads Review](https://www.goodreads.com/review/show/6643145832)
 
 I've been reading Berserk by Kentaro Miura on and off for about...2 decades now. I've read quite a bit of his comics, watched almost all the shows, played a few of the games, and still think that for a manga, its one of the more riveting shonen manga.
