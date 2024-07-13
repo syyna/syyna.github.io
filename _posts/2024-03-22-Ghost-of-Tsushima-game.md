@@ -1,8 +1,9 @@
 # Ghost of Tsushima
+(ggapp.io Review)[https://ggapp.io/usagichann/reviews/ghost-of-tsushima/b2UIRAHz]
 
 Ghost of Tsushima is a game that I've heard a lot about, but actually knew very little.  My brother raved about the game, so I figured it must have some merits to it.  After checking it out of the library, I installed it and then tried it and discovered that I was rapidly engrosssed in one of the prettiest PS4 games I've ever played.
 
-Seriously, the team at SuckerPunch must have spent most of their budget on making the game look pretty.  The entire Island of Tsushima is gorgeously rendered and you kind of get the best of Japan Sceneries within the game, from falling sakura petals, to the fall colors of the golden trees, to the impresive temples and Torii gates to the vastness of the Pacific Ocean from the Cliff overlooks, its really hard to overstate how absolutely pretty the game is.
+Seriously, the team at Su[ckerPunch must have spent most of their budget on making the game look pretty.  The entire Island of Tsushima](https://ggapp.io/usagichann/reviews/ghost-of-tsushima/b2UIRAHz) is gorgeously rendered and you kind of get the best of Japan Sceneries within the game, from falling sakura petals, to the fall colors of the golden trees, to the impresive temples and Torii gates to the vastness of the Pacific Ocean from the Cliff overlooks, its really hard to overstate how absolutely pretty the game is.
 
 Next up, the option for Japanese dialouge with English subtitles.  They got the tone and era of the game perfectly right by hiring not just good voice actors, but good script writers who got the dialouge and the era just right.  You feel like you're watching a Japanese period film, which is emphasized by there being a Kurosawa mode that lets you play the game in grainy black and white.  Even though that would just detract from the prettiness of the game, its awesome that they made this an available option.  
 

@@ -1,4 +1,6 @@
 # God of War: Ragnarok Review
+[ggapp.io Review](https://ggapp.io/usagichann/reviews/god-of-war-ragnarok/JwNrMdIE)
+
 I guess this is the first review that I'm doing that's exclusive to this "blog".  Unlike books that are on goodreads, and steam games that I review on steam, playstation games can only be reviewed outside since there's no native ecosystem for me to review them on.
 
 GOW 2018 has been labelled Dad Of War so often that the jokes practically write themselves.  GOW:R is basically Dad of teenager of War, or something like it.  Its a direct sequel to GOW2018 so if you haven't played that already, I think GOW:R won't have quite the same appeal.
@@ -17,4 +19,4 @@ the games' versions of valkryes this time are the berzerkers and the combat with
 
 The final arc of the story was a little bit of a let down but it is important to the story arc of the characters, so I'll let artistic license win on this one.
 
-all in all, if you loved GOW2018, you have to check this out! highly recommended and incredibly entertaining, even if the story didn't quite beat as strongyl as the 2018 version due to all the diversions of the story.
+all in all, if you loved GOW2018, you have to check this out! highly recommended and incredibly entertaining, even if the story didn't quite beat as strongyl as the 2018 version due to all the diversions of the story.https://ggapp.io/usagichann/reviews/god-of-war-ragnarok/JwNrMdIE
