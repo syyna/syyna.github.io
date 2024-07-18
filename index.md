@@ -4,6 +4,6 @@ The reviews will still be mostly hyperlinks to the actual review sites, but this
 
 Yay! Huzzah! And no value was lost! =)
 
-[Goodreads reviews](https://www.goodreads.com/review/list/110819831?ref=nav_mybooks)
-[letterboxd reviews](https://letterboxd.com/usagichann1/films/reviews/)
-[ggapp.io reviews](https://ggapp.io/usagichann/reviews)
+*[Goodreads reviews](https://www.goodreads.com/review/list/110819831?ref=nav_mybooks)
+*[letterboxd reviews](https://letterboxd.com/usagichann1/films/reviews/)
+*[ggapp.io reviews](https://ggapp.io/usagichann/reviews)
