@@ -3,3 +3,7 @@ This blog is mostly becuase I was getting sick of all the reviews I write ending
 The reviews will still be mostly hyperlinks to the actual review sites, but this way I can actually find stuff again!
 
 Yay! Huzzah! And no value was lost! =)
+
+Goodreads link - https://www.goodreads.com/review/list/110819831?ref=nav_mybooks
+letterboxd link - https://letterboxd.com/usagichann1/films/reviews/
+ggapp.io link - https://ggapp.io/usagichann/reviews
