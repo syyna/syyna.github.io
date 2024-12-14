@@ -1,0 +1,14 @@
+# The Big Sleep
+[Goodreads Review](https://www.goodreads.com/review/show/7051500011)
+
+Obviously having read "The Man in the Brown Suit" from Agatha Christie, I had to go read something by Raymond Chandler, who's one of the foremost names in Noir Detective fiction. I know I've read most of Chandler's books from way back when either in College or just past College, but recall little from the books other that it was gritty, dark, and had Philip Marlowe in it.
+
+Well, what a treat it was to come back to it. Contrasting directly with Agatha Christie's bright optimistic characters to a world where everything is dark, gritty, and somber (even in brightest LA) was a bit of a shock. Similarly, the entire writing style is full of metaphors and juicy descriptors such that you can't help but feel engrossed in the world. The contrast between the two detective novelists cannot be any stronger.
+
+The actual plot is fairly convoluted, much like most detective novels are, and for the central hero being a male, he involves in a lot more fisticuffs and violence (both subjecting and being subjected to) than any of Christie's heroes or heroines ever are. The pervading feel of the novel is that of a fog beneath the eternal sunshine of LA, and the fog is that of corruption, double crosses, conspiracy from every one and such, as well as the actual fog. Its a bit hard to divorce what you know about LA if you've actually been there from the atmosphere that Chandler tries to describe, and the feel of the city he describes feels more like a sleazy Chicago or NY than the eternal sunshine of Los Angeles. Still, if you can imagine a corrupt and helpless situation befogging a city, then the descriptions are suitably apt.
+
+The story is that of any other hardboiled detective story, and the actual story itself is less important than the feel, the noirness of the novel. You have a rich family seeking Marlowe's help, he willingly gives it since the money is good, and is almost instantly enraptured with the money, the politics, the women, all trying to get him to do something, anything for them. He declines, as he's more of an anti-hero and has a code to be loyal, but he slowly succumbs to how unyieldingly punishing the atmosphere of corruption is. One of the hallmarks of noir detective novels is that as much as the hero tries to stay clean, the environment he's in makes it impossible, much as a pig farmer cannot steer clear of mud.
+
+The mystery is solved in time, and much violence, shooting, and women that don't want or need saving are introduced. There are intrigues within intrigues, and ultimately he does solve it, and leaves walking away from everything in the dust, back to his office, awaiting his next case.
+
+Highly recommended and this book is considered one of the hallmarks of noir detective hardboiled fiction.
