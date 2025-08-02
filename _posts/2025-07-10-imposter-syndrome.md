@@ -1,0 +1,22 @@
+# Imposter Syndrome
+[Goodreads Review](https://www.goodreads.com/review/show/7686264114)
+
+I picked this book up right after I have finished Family Trust from the same authoress. Once again, the setting is silicon valley but this time we have a very international presence from our best friends in Russia. This is a bit of a spy thriller and goes into how intelligence agents from Russia came to basically run as the COO of a fictional Silicon Valley giant (basically a facebook/google/apple mash-up).
+
+The story is given from the POV of characters, but its mostly that of 3 or 4 characters with a very brief smatterings of side characters. You always get to be inside the head of whomever the chapter is about, and you get their motivations and feelings with no intrigue whatsoever. As such, you really have to like the 3 or 4 main characters of the books or else you'd get annoyed quickly. This is pretty much the authoress's writing style so I think if you like her previous book, then this will not come as an unexpected surprise.
+
+The plot itself is a bit far fetched, basically russian agents kick start a startup in silicon valley with one of the main characters running that startup. That startup gets bought, she quickly moves up the ranks, and finds herself the COO of the aforementioned tech titan. She then gets asked from the motherland to start delivering on data and other information that can help the motherland. That's when a lowly IT person catches her in the act via some monitoring logs and pretty soon you have two people with superadmin access to basically every one's social media account and email.
+
+This is where as a tech person I go, yah high unlikely. =). But i'll let it pass for the sake of a story. The story goes on like this, with actually fairly few plot twists. It ends up with a sorts of happy ending for everyone involved and things gets neatly tied up with a bow on top.
+
+The plot is hardly the point of the novel however, its mostly about the characters and how they act in the setting and situations that they have. You have the main russian spy character and you get a lot of background in how she came to be who she is and the situation she's in now. You have the lowly IT person who catches the COO in the act and can't decide what to do. You have the COO's handler and how he has to handle the delicate situation of dealing with power imbalances with the COO and his other reports, and then you have the setting itself of Silicon Valley.
+
+This silicon valley is one that folks knows exist but few actually can inhabit, that of the ultrarich C levels and VC folks. The opulent invite-only parties, the hanger-ons to these parties, the lifestyle of the tech rich and famous, in other words. I don't really relate to any of that obviously, so its with mild jaded curiosity that I read about it. I have no way of knowing if these type of parties really exist in the way as described (Andy Rubin's exposed parties are about as much as I know about them), but its always in a spectaular mansion in Atherton/Woodside and the invite list is pretty much as you expect...other tech luminaries and an appropriate amount of pretty young folks to be other people's arm candies.
+
+I think as a whole, the book is relatively interesting, as unlikely as the scenarios goes. Its still compelling enough that I finished the book, but I definitely had to work myself to get through some of the chapters. I think the only character I could relate to, the lowly IT worker, acted in too many unintelligent ways that I had a hard time actually relating to her. The others were just too far out of my wheelhouse to relate to intelligently, and thus this ended up being a thumbs middle type of book for me.
+
+I think its well written in terms of the technical aspects of writing is concerned, but for a topic of spy thriller (something I'm usually interested in), it fell a bit flat because a lot of the spy stuff isn't really there. Its just getting into the head of a handler and his COO agent. Its interesting, but doesn't really touch on the high level spy stuff that's actually more interesting. Still better than most James Bond stuff, but that's not what you ever read Le Carre for anyway.
+
+This is a mild recommend if you liked Family Trust and a stay away if you didn't.
+
+thumbs middle. =)
