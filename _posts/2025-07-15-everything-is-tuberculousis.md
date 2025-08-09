@@ -1,0 +1,14 @@
+# Everything is Tuberculosis
+[Goodreads Review](https://www.goodreads.com/review/show/7670742974)
+
+This is yet another book that I got into because of People i mostly Admire (https://freakonomics.com/podcast/the-...). I guess at this point PIMA is really my bookclub.
+
+this is a book that I think the interview is WAY more interesting than the actual book. The actual book is a half history, half biography of a tuberculosis patient he met in Sierra Leone. TB is one of those diseases that no one in the modern world really think more than 2 minutes about in the 1st World, but is still ravaging the 2nd and 3rd world (and coming back in the 1st world thanks to the new administration). By and large, it is a disease that has been "defeated" much like polio and there really isn't any reason why its still around or left untreated EXCEPT that the everyday drugs we take for granted in the 1st world is exorbitantly expensive in the 2nd and 3rd world.
+
+There's quite a bit of tidbits about TB in the book how it was seen as a white man's disease rather than the communicable disease that it was. And how it was awfully romanticized. In fact, a lot of beautification techniques that is done in the modern world IS based on that romanticized view of TB patients (emancipated, red lips, flush cheeks, superbly pale.... sounds like a make up artists's dream). I would have loved if most of the book was related to insights like this but alas, about 1/3 of the book was about his friend Henry, and the other 1/3 was railing about the unfairness of the world as it stands (because the 1st world could easily subsidize and probably eradicate TB as a disease globally but that its more profitable not to). The last 1/3 is basically full of these historical insights that gives you a glimpse of what TB was like in the olden world, and how it particularly affected society when their best and brightest (basically a lot of the romantic poets suffered and died from TB, keats, dickinson, perhaps jane austen) and it was become more de jour to want to die from "the wasting disease" as it was known.
+
+When TB was found to be communicable and not just a disease of the white intellectuals, the whole western world's view on the disease changed drastically, but we are still left with the idealized beauty of the wasted waif.
+
+I want to say this book was worth reading, but too much of John Green's views pervaded the book and I think those who like me, are more interested in the social and historical aspect of the disease might be better off reading another book on TB.
+
+Mild recommend, especially if you've read his other books.
