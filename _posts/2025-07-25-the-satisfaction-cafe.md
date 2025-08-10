@@ -1,0 +1,28 @@
+# The Satisfaction Cafe
+[Goodreads Review](https://www.goodreads.com/review/show/7725518034)
+
+I got this book as part of my "read everything kathy wang" streak I guess. Honestly its probably a book I put on my wish list on my library and didn't expect to get it as soon as I did, but I think I got it release week and decided to just power through it. Unlike Family Trust & Imposter Syndrome, I read read this book rather than listened.
+
+I think at this point, there's a bit you can say about the Authoress's topics.
+1. Have a strong woman character.
+2. Be in the SF Bay Area
+3. Talk about lifestyle of the VERY VERY affluent.
+4. Pick some topic that is probably of interest to the authoress, whether its familial obligations and its tangled web, silicon valley life if it was subverted by Russians, or....I don't even know what the Satisfaction Cafe really can be categorized as.
+
+Once again you have your strong female character, and you follow her life from the point of her being in the United States (you get some glimpses of her life back in Taiwan, but not very much) to her death.
+
+The setup chapters this time is basically very short. You basically have the protagonist who married a pervert of a chinese husband, to their very quick divorce, to her being picked up by a very wealthy real estate magnate in the SF Bay Area. This portion is done presumably there's not much to talk about as far as her life as a poor is concerned ;p.
+
+The timeline then fast forwards a bit to when she has her first child, to when she accidentally picks up a second child (the circumstances were not exactly surprising but its quite refreshing how its done), and how this family unit navigates the interesting things life throws at them. There's the husband cheating (so she married a pervert twice, but at least this one is rich. ;p) multiple times, her husband's family being difficult (this was during the era when interracial marriages were not common), her husband's adult kids being unaccepting, and basically life as a minority during the age of overt racism.
+
+The book fast forwards quites a bit, basically skipping big swathes of the family's life both for expediency sake (I can't imagine reading through raising a kid in their toddler to tween to teen to young adult years), as well as so that the authoress can jump to the interesting points she wants to write about. There's the part where her son signs up to be a Navy Seal and gets hurt enough to earn a honorable discharge, her daughter basically going through life relatively aimlessly, her husband dying of cancer, their house burnt down as a subsequent action because the husband's adult son could not understand why he did not get more of an inheritance that he thought he should have.
+
+It all ends with the main characters opening of the cafe that's the title of the book. This happens basically 2/3 to 3/4 of the way through the book, so for those hoping you'd learn more about this you'll have quite a bit of a book to get through before getting to this point. The idea of the satisfaction cafe is mostly that of a Host/Hostess bar that you find in Japan. The basic idea of most Host/Hostess bar is that you go to a bar solo or with a group and then you get a host or hostess placed along at your table. The job of the host(ess) is to keep your company while you drink the overpriced drinks. There's some aspect of loneliness that leads folks to go to a host(ess) bar but most of these folks cater to the business folks taking their customers or team for a night of R&R. Some folks might think there is MORE than just talking and serving drinks, but any hanky panky that happens is less than 1% from my own personal experience.
+
+So take this concept and apply it in the US, where we have a loneliness epidemic. Its plausible that it could be a runaway success but I highly doubt it. Americans are the last folks who will admit that they are lonely, and the idea of PAYING to talk to someone is probably even more wounding to the American ego than anything else. Some ideas just don't really translate well across cultures and I feel that any American host will more than likely be a lot less effective than the Japanese Host(ess) mostly because of cultural norms.
+
+Its one reason why character cafes also don't really exist in the US even though Pokemon is arguably bigger here than in Japan. You see the occasional cafe at a Disney resort, but that's becuase folks know what they're paying for when they go to those cafes, and its mostly being gouged for a photo op.
+
+At the end of the book, I have to say I'm not terribly satisfied with the book. Its once again another book where the authoress doesn't really find her direction until halfway or even past midway of the book. You get a lot of ideas and concepts, but they don't ever really come into a cohesive satisfactory whole. I'd much prefer the book if the authoress talks about the difficulties of running a cafe like this (and there are a LOT of failure of host(ess) bars in Japan...), and how runnig a food service anything in this day and age is basically insanity ;p. Having the cafe be a runaway hit is by-and-large the most unbelievable thing about the book.
+
+I'd say this is a solid 3* book mostly because once again, I really like the Authoress's style of writing and wry sense of humor. It really hits where those notes are concerned, but I think a better title of this book would have been "the life and death of Joan, and her side-biz as a cafe owner" =p
