@@ -1,0 +1,16 @@
+# The Shattering Peace (Old Man's War #7)
+[Goodreads Review](https://www.goodreads.com/review/show/7940200874)
+
+I was kind of blindsided by this book's availability in my Library, given that I wasn't on the lookout for it at all, but once I saw that it was available with no waitlist, I jumped on it. I've been reading Scalzi's books more or less for the last decade and I couldn't say no to the continuation of The Old Man's War series.
+
+Sadly, i think I must be all Scalzi'd out by now. Having just read the first 3 books of the trilogy not so long ago, I think this is a fine, but very itereative volume to the saga. The characters change, the settings change, but the story beats hit much in the same way and there's a relatively predictable finish and we're not just talking happy endings here.
+
+This time, we're dealing with the Consu, the mysterious overlords of the Old Man's War series. They are so technologically advanced that every other species are basically just out of their caveman phase in spite of their ability to travel intergalatically. The main character is Gretchen from Zoe's War (she was Zoe's BFF in that book), now all grown up and a skilled diplomat herself. I think the problem with most of Scalzi's books is that most of his chracters are the same.
+
+They're all sarcastically funny, has a little bit of tragedy in their lives, sardonic wit, usually the most street smart member in whichever room they happen to be, and..yah, the list goes on. Its probably just a reflection of the author himself in various forms, but it does get old.
+
+the aliens are also all samey after a while. They're never that alien. They might look like crabs, be 10 feet tall, but at the back, they're the same as humans. equally petty, equally distrustful, equally at war....it might make sense in the grand galactic sense of it, but it does get back to the whole star trek "just another human in a rubber suit" feel. Actually star trek had more exotic aliens when you think about it (tribbles, borg, Q), but its not fair comparing a 60+ year old series to a series of 7 books. To also be fair to Scalzi, some of his other books don't have this dynamic of a hero protagonist (head-on, agent to the stars) either, but lately all of the books that I've read from Scalzi is beginning to feel like a bit of a copy-paste job.
+
+Anyway, same old man war's formula. some crisis happen, the hero is part of it to save the universe, uncovers some other subplot, and finds a way to save everyone by finding a "aliens hate this one weird trick" mcguffin that saves the day. Yes, i'm being a bit trite here, but I think i might just be all scalzi'd out. It won't stop me from reading the next series, but if you want some good sci fi from another profliic author who's not afraid of stretching boundaries, I'd highly recommend Adrian Tchakiovsky instead.
+
+A meh on this one. Read only becuase you can't stop yourself from reading another Old Man's War book and then jump on a review to complain about it (yes i'm talking about myself).
