@@ -1,0 +1,16 @@
+# My Mother, the Mermaid Chaser
+[Goodreads Review](https://www.goodreads.com/review/show/7958094852)
+
+This is the Sequel to My Father, the Panda Killer, and goes into the story of the Mother this time. The previous book was one of the best books i read last year, so I really looked forward to the sequel as well as find out what exactly happened to the mother and what would make a mom abandon her two children.
+
+This time, we get the point of view of the brother, then just a 5 or 6 year old. Its been close to 10 years since the end of the Panda book, and now he's a full grown teenager. The book once again uses the one chapter of the brother in the present, one chapter of the mother's pov from the past. Like the last book, its a bit jarring, and takes about 1/4 of the book for me to get fully comfortable with it.
+
+I wasn't really aware of this last time, but this book makes it very clear. The authoress is a much better author of women than she is of men. I felt like the women chapters of both books were so much better written and more full of elucidation than the ones of men. This could be just that the authoress wanted to perpertuate the "woman is of venus, mars is of men" trope, but I think its just that she's got a very good womens' voice and her men's voice is nowhere as strong. the boys chapters always end up in some odd state that discomforts me for reasons I can't explain, while the womens' voice is always much better. It could just be my imagination.
+
+This time, the setting has changed as well, with the bulk of both chapters taking place in Vietnam. The protagonist is there on a trip with his father, and they make a stop to the paternal Grandmother's house where he experiences the heat, the lifestyle, and the food first hand. Its all cute and everything. Meanwhile the mom's side of the story starts with the war, and increasingly as the war starts tearing the family apart, you get to see the hardship, suffering and the pain that war inflicts on the mother's family. Unlike the first book, where I suffered the dad's part of the story to listen to Jane's story, here I find myself tolerating the boy's story to listen to the mom's.
+
+At the end, everything is made clear, the family kind of sort of reconciles, and some things are nicely tied up in a knot. Perhaps too cleanly, but its fine. The bulk of the book is still amazing and the pain of what happens in a war to a family is still the overall theme. The first book was absolutely amazing in that it also showed the effects on the 2nd generation. This time, the 2nd generation has already been insulated by the sister, so its not as powerful.
+
+The book does broach upon mental health quite a bit, but that bit was little more than just a handful of chapters, so not the overall theme of the book.
+
+All in all, a great sequel to the first book, even if its nowhere as good as the first. Recommended if you loved the first book. Worth a listen too, as the narrator does a great job with the vietnamese pronounciation.
