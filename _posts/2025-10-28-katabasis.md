@@ -1,0 +1,16 @@
+# Katabasis
+[Goodreads Review](https://www.goodreads.com/review/show/7980946827)
+
+I debated not finishing this book after reading about 1/3 of it, but decided to power through the rest of it. Unlike some other books that I literally could not finish, I did eventually finish this one, primarily because the writing was not complete and utter dogshit, so I give credit to Kuang for this.
+
+The actual story and plot however, leaves a lot to be desired. It revolves around Alice Law, who's a student in magic (in this world, magic is a formal degree that can be studied, much like a science, and has real world effects, one of which, is going to hell). Her professor dies from what she thinks is a mistake on her part, so she feels responsible for going down to hell and recovering him. On her way to perform the ceremony that'll let her into hell, she meets a fellow doctorate student who is also trying to get the old professor back and thus we begin the descent to hell with two doctorate students.
+
+The hell that's depicted is academia, and given that Kuang has spent the entirety of her life in Academia with a few forays into writing, its easy to see that this is something akin to "writing about what you know". You have to give Kuang credit in that other than her first series (The Poppy War), her other books have mostly been something she's studied a lot (Babel), or has direct experience in (Yellowface, and this book). I think this is the first thing that made me decide this book is going to be a fail for me. Academia as a hell is only for those who's probably never experienced real hell such as some form of war or famine, or sickness. Granted, some domain of hell is probably always going to be hyper local, but right from when they entered the fields of Elysium, the inside jokes about academic hell begins and never really lets up.
+
+There is some pseudo technical explanation about the space time shape of hell and all that, and how the river styx works to interconnect the various parts. Some literary sprinkles such as dante's hell and other famous works that reference hell shows up and a very very small portion of other religions versions of hell shows up, but predominantly its a very western view of what the afterlife looks like. The pair goes through adventures after adventures in the various realms of life, showing off one another's strengths and working through the other's weaknesses, the usual conflicts and betrayals and whatnots happen to strain at their teamwork and a whole lot of background dumping happens in between various chapters.
+
+At the end of it all, there's a happy ending, of sorts, and relatively undeserved if you're into that sort of thing, but kinda sorta that is what life is about isn't it? =)
+
+I seriously cannot recommend this book unless you're a big fan of depictions of hell and believes academia as a form of hell is a good idea. None of what is described will resonate with those who only spent a bachelor's worth of time at a university, and unless you're big into interdepartmental politics and academic bullying, you probably wont even care much about the descriptions of such.
+
+I think the biggest sin is mostly that I couldn't be bothered to care about the characters after about 1/3 of the book and that did not improve even to the end.
