@@ -1,0 +1,17 @@
+# Enshittification
+[Goodreads Review](https://www.goodreads.com/review/show/8084020199)
+
+I've never really read any book by Cory Doctorow, only heard about him vaguely, and always thought of him as a type of internet gadfly.  Ready to jump on any one issue and scream towards it to the headlines.  So its with a bit of trepidation that I started on Enshittification, which was a term he coined in 2019 or thereabouts, to describe about how Big Corps, once they got a monopoly, then start making the products shittier and shittier to extract maximum value out of both customers and vendors to enrich the Big Corps themselves.  He uses several examples, like Amazon, Uber, Google, Apple to name a few.  Uber's examples is probably the best since its a great example of nothing more than a gatekeeping app that treads heavily on both users and its contractors.  It got a monopoly by killing the taxi industry by subsidizing rides and driver's incomes with Saudi money until it got to the point of a quasi monopoly and then jacking up prices for riders and decreasing incomes for drivers.
+
+The strategies that big company uses isn't a mystery to anyone who follows the american companies at play and why consolidation and "selling to a big corp" is pretty much the game.  Amazon's killing of daipers.com once it couldn't buy it (by basically selling daipers below what diapers.com could afford, buying them once they're basically broke, and then killing the brand and then jacking prices back up) is always a horror story about what happens to you if you don't sell when a company comes calling.  About the only company I know of that survived a "i have an offer you can't refuse" is Dropbox, when Steve Jobs told Drew Houston that "Dropbox is a feature, not a product".  The company still exists amongst all the other cloud drive providers, but their stock price has been stagnant, so perhaps it proves Job's point.
+
+In any case, the book walks the readers through what enshittification is, examples of it, and why it happens, and what we can do about it.  Its a fairly depressing read even if you're aware of whats happening, becuase it says more about the society we live in at large.  That the justice systems that governs monopolies has been effectively captured is probably the biggest deal, that our political system has also been subverted is another, and its probably not a stretch to say that we're in another type of gilded age where if you're not part of the 0.5%, you're probably in bad shape.
+
+The book starts off with a type of screech that I can't stand, but the tone of it mellows out about halfway through the book and you realize that Cory Doctorow is quite thoughtful and he screams the way he does because that's how you capture attention spans in the 21st century.  I don't agree with his methods, but his thought processes are quite good and he does quite a bit of research to prove his points.
+
+Bottom line, this book is a great read if you're not already well versed with how enshittification occurs.  The last section of the book is depressing because there really ISN'T much we can do about it without wholesale collective action, like tech workers joining a union, or electing the folks who'll do something about it (the system is setup against that majorly right now).
+
+I give this book 4* and a recommended tag because I feel that the topics within is quite worth reading about, even if you already know a lot.  And worth thinking about the solutions, even if it probably won't happen in my or my kid's lifetimes.
+
+depressing, but good.
+
