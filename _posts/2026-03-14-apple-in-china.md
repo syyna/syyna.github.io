@@ -1,0 +1,16 @@
+# Apple in China
+[Goodreads Review](_posts/2026-01-10-innumeracy.md)
+
+This is one of those books that I thought I wouldn't enjoy reading since I've never been an apple fanboy. I used to actively smirk at folks who buy what I considered over priced hardware and inferior software. This is even as my work places gradually moved over more and more to Mac OS and Mac hardware for my daily drivers, so while i was semi-forced to appreciate the apple hardware and software ecosystem, I was and am still firmly in the Android camp.
+
+This book changed all of that view. It literally has everything you want in a book about a company and even though it doesn't talk about software (which many considers to be the most important reason why you'd want to use Apple products), you realize very quickly that its the design and hardware that actually makes apple products so good. Couple that with a relentless drive towards logistical perfection and you have what is the most valuable company in the world.
+
+I'd say its not hyperbole for me to say that this book has everything. It documents the start of how apple started in a garage in California to what it has today, and talks about the rise and fall of apple in the 90s and the rise of apple again the 2000s when Jobs returned. It talks about how design is really at the heart of what Apple products are and why its so desirable, and how the right hires in the right department changed the culture of a company.
+
+The most important piece of the book is about how after the 2000s when apple started manufacturing the iMac and the Ibook, manufacturing gradually moved over to China, and how Foxconn (or Hong Hai Mfg) embedded itself in Apple's supply chain and gradually became the world's biggest assembler of high end electronics product. How this operation moved to China and the whys, and also documents the rise of Xi Jinping and how it changed everything for both China and Apple. It talks about how Apple actually contributed more to the rise of China as the technological hub it is today than any other factor or country (other than perhaps the communist party I suppose).
+
+So for the economists, its got all of this juicy data. For the logisticians, it talks about supply chain and labor, for the folks who love juicy gossip, it breaks new ground in never-before-released material about how the internal workings of Apple goes. For the apple fan, it reaffirms why Apple didn't suffer after Jobs death, and why Tim Cook is probably the best CEO in history (so far).
+
+Its got gossip galore for those interested more in human workings. This is one of the best book I've read that had everything that I am interested in and more. Its basically gives you a glimpse as to how to make a successful company (albeit at the expense of human lives and general well being). How navigating china in the early 2000s is so different from the 2020s, and more. I wish this book was available back earlier on in my career because there are so many lessons you can gleam from it.
+
+My top read so far in 2026, and highly recommended. I consider it required reading if you're into manufacturing, or general business or just a technology user. In other words, everyone should read this book.
