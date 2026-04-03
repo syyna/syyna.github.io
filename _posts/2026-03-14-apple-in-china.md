@@ -1,5 +1,5 @@
 # Apple in China
-[Goodreads Review](_posts/2026-01-10-innumeracy.md)
+[Goodreads Review](https://www.goodreads.com/review/show/8404619885)
 
 This is one of those books that I thought I wouldn't enjoy reading since I've never been an apple fanboy. I used to actively smirk at folks who buy what I considered over priced hardware and inferior software. This is even as my work places gradually moved over more and more to Mac OS and Mac hardware for my daily drivers, so while i was semi-forced to appreciate the apple hardware and software ecosystem, I was and am still firmly in the Android camp.
 
