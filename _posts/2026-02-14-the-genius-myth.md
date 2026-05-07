@@ -1,0 +1,14 @@
+# The Genius Myth
+[Goodreads Review](https://www.goodreads.com/review/show/8355943998)
+
+The genius myth is one of those books that I think everyone knows is inherently true. There are maybe a handful of geniuses as the popular mythology defines: someone whom requires very little or no support or training and can do amazing things from birth or some such. The book deconstructs that mythology that folks typically lionizes as the prototypical genius. that of the long suffering artist, the misunderstood technologist, the brash and abrasive businessmen and go on to say that even if these people are influential, they're not necessarily genius.
+
+The problem lies in mostly "what is a genius, and how do we identify someone clearly as a genius". and also "do geniuses really exist if it takes time to become one". I think most people don't really believe that some folks are born from the womb able to play piano with no exposure, or be able to succeed in life without a great support system, and yet mythology demands extraordinary deeds from our anointed (or self proclaimed) heroes, even if we have to make up those deeds post fact.
+
+Its probably as much biology as anything else, that we humans demand genius in our mythology. Its very hard to go "ordinary folks did this, and it was mostly luck that enabled them to be in the right place at the right time" becuase at the heart of it, humans have a hard time accepting that most of life IS just a lucky accident and hence anything that springs forth from that life is just another series of lucky accidents. And the basics math of it is that, while any one of us being that lucky is rare, as far as statistics is concerned, its guaranteed to happen. Humans are just not wired to intuitively understand and accept difficult to understand concepts and statistics is definitely one of the harder to understand ones.
+
+The book IS entertaining, mostly becuase it combines a history lesson and various anecodotes to one. I don't think the thesis is very strongly defended, as its mostly just an entertaining read, but the major points are there. That is, genius is mostly happy accident, and we shouldn't listen to geniuses outside of their fields. Too many folks want to extrapolate their genius in one area (say, being a genius artist) to being a genius in other unrelated areas (also a genius in being a doctor..?).
+
+With that in mind, the 3* rating is there for the broad strokes of history you get. the tolstoy sections alone were great reading,the later sections on musk not as much....but the point remains.
+
+Mild recommend if you're a fan of history and don't think too hard about the thesis itself.
