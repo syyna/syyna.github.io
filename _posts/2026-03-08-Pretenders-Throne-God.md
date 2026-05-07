@@ -1,4 +1,4 @@
-# City of Lost Tyrants
+# Pretenders to the Throne of God
 [Goodreads Review](https://www.goodreads.com/review/show/8358177756)
 
 Another year, another book in Tchaikovsky's series The Tyrant Philosophers. I have to say that this series is becoming one of my favorite of his, even surpassing that of the "Children of" series. This book once again shows off another City in the Philosopher's universe, and once again, that city is becoming unduly influenced by the Pallenseen Sway in their quest to 'perfect' the world.
