@@ -1,0 +1,20 @@
+# Consider Phlebas
+[Goodreads Review](https://www.goodreads.com/review/show/8452462045)
+
+Consider Phlebas was one of those books that I bounced pretty hard off when I was younger. Given that I am many years older (by about 2 decades I think) than I was, I thought I'd give it a try. There are certain books that requires quite a bit more maturity than I was capable of 20 years ago, but enough of that.
+
+This is the first book of the Culture series and as such, it begins with a literal bang. There is a war going on between the Culture and the Idirans, another species which seemed to be able to match up with the Culture, at least militarily and one of the sentient ships are in trouble. Its being pursued by an enemy and in spite of the culture capabilities, is a new-born ship and does not have all its capabilities on yet. Sensing destruction it decides to self destruct and send its core into a forbidden planet. In other words, the whole setup is a McGuffin. The rest of the book, we are introduced to the other players in the game, we mostly see the POV of the Idirans and barely see the representatives of the Culture.
+
+In typical Ian Banks story telling, the actual plot of the novel is almost secondary to the existential question that is being told, which is, if robots can do everything that humans can do, and better at that, what is the point of being human (or biological as the case may be)? That is the crux of why there's a war going on between the Idirans and the Culture. The Culture through certain chapters is having itself a civil war, where the citizens (both biological and non-biological) have to decide what to do about the war. Whether they should just retreat into themselves, or engage with even more resources. What the Idiran doesn't know is that the Culture has been fighting with one hand tied behind its back, since it appears that its mostly Special Circumstances that are fully engaged within the war.
+
+Which is to say, the Idirans are probably going to lose since if the Culture brings its full force into the conflict, there probably won't be much of an Idiran civilization left. But that is only from the information I've gotten from the future books. At this point of the world building, I don't think that is entirely manifest in Ian Bank's own head yet. Or maybe it has.
+
+Anyhow, the writing is in a way, much simpler than the other Culture books. There's not much jumping around of perspectives, no one side forward, one side backwards timeline that you need to tease out later. The characters by and large are exactly who they say they are, and there's very little subterfuge going on.
+
+The chase for the McGuffin culminates in the final arc of the novel, but by then, the conclusion seems almost irrelevant. By the conclusion of the McGuffin episode, the survivors emerge from the Dead Planet to find that the Culture has beaten the Idiran and everything they did on the planet was irrelevant to the conflict. This is VERY realistic by the way, its rare that one turn of anything in a war of any scale is going to be resolved by one intelligence gathering mission or another. Even the famous enigma machine recovery of WW2 was really just one cog of the battle to decrypt the German's communications.
+
+The final chapter perhaps foreshadows Ian Bank's ultimate goal in writing books, which is to dedicate himself to big idea. The surviving core module of the ship that got blown up in the beginning takes the name of the antagonist in an act of...consideration to the enemy.
+
+Probably in an attempt to show that it has compassion and thus, not just a robot as the enemies would like to point out. All in all, I can wholly recommend this book some 20 years after I gave up on it. It takes a bit of time to build up, but when it gets going it gets going. The world building isn't over the top here yet, but you start to get glimpses of what the Culture is truly capable of.
+
+Great start to the book, although I would say after reading the first 3 books, you can probably start with any of them and you don't lose anything by it.
