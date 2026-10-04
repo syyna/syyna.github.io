@@ -1,0 +1,14 @@
+# The Player of Games
+[Goodreads Review](https://www.goodreads.com/review/show/8581316632)
+
+I read and finished this while on a business trip in Detroit. This is technically book 2 of The Culture series, and its the first introduction for continuing readers that each book is a self contained novel. The characters largely do not carry over, even the timelines do not carry over (one can be set 100s of years into the future or past), and the only thing you are guaranteed is that there are sentient AI, sentient ships, sentient drones and special circumstances are going to be involved.
+
+This one begins by introducing the protagonist as the culture's imminent player of games. In a society where needs are mostly taken care of, some specialties emerge and its mostly the entertaining ones. and in the case of Gurgeh he's the Culture's top game master. He displays his prowess early on by defeating up and coming gamers with ease and panache.
+
+As per usual of course, he gets caught up in the shenanigans of the culture and gets tricked into some impossible decisions with one obvious one going off to work for the Culture. He obliges and soon is off to a far away star system where in that world, instead of elections or some such, they decide who should rule by who plays this game. Its not just any game though, its a game that takes up entire islands as its playing field, and there are some serious consequences for losing, such as death. Its not the first nor the last game to use life as the ultimate playing chip, but also to have it decide the fate of the ruler of the entire planet is certainly a funky one.
+
+As per with anything that has such high stakes, there will be cheating involved, and as such, plenty of the cloak and dagger stuff that happens with special circumstances also happens here. The ultimate reason why the Culture doesn't just swoop in is never really detailed, but its probably the "lets not destroy local culture so quickly eh" reason that latter books give.
+
+In any case, there are some foreshadows that comes maybe 1/4 of the book in that you can predict will happen. Its not realy surprising what happens in the end if this isn't your first culture novel. There are some greater lessons to be had here perhaps, but the game playing and description of the game kinda takes over it quite a bit. In the end I can't say this is that great a culture novel and the fact that its recommended by everyone as a good starting point mystifies me. To me, Use of Weapons is always going to be THE culture novel for me, the first and only Culture novel anyone needs to read.
+
+this can be a mild skip but if you're here because Use of Weapon snared you, then you might as well enjoy the ride.
