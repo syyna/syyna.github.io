@@ -1,4 +1,4 @@
-# Manifest Destiy Vol 1 - 4
+# Manifest Destiny Vol 1 - 4
 [Goodreads Review](https://www.goodreads.com/review/show/8600122512)
 
 How I got into this series is that there was an amazon sale on a game flavor based on this series. I've never heard of either the game nor this series and ultimately the game did not look interesting enough even on a sale basis for me. The comic that the game was based off though...that was interesting enough.
