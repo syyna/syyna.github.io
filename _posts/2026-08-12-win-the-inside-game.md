@@ -1,0 +1,14 @@
+# Win the Inside Game
+[Goodreads Review](https://www.goodreads.com/review/show/8855095112)
+
+Having previously read Do Hard Things, I decided that Steve Magness's book is probably worth a listen to. This book is much in the same vein as Do Hard Things, just that instead of focusing on sports team and debunking hard grit and whatnot, this book talks more about intrinsic vs extrinsic types of rewards. A major part of the book was on his own whistleblowing experience, and then there are a few focus articles on some athletes and also on the main theme which was overcoming your own resistances.
+
+A lot of the book is basically going over the themes of Do Hard Things, which is mostly that you don't get great performance by berating, either from yourself or others. The instinct to defend oneself often makes over criticism counter productive. Same as over training. Training is great, as is criticism, better is when there's a path to long term success and something that the brain can focus on. Focusing on the goal often is surprisingly also counterproductive, as his story with the marathoner goes. When she stopped focusing on the goal of winning and more on the journey, and simply enjoying the runs for what they are, her performance improved markedly enough that winning became a by product instead of the outcome.
+
+Its really that point that makes the book worth reading. So often society and other expectations focus more on the outcome rather than the journey, and honestly the outcome is just a 5 second anti-climatic moment. The journey is the 99% of the time you spend on it, so its no wonder that if you hate the journey, the outcome is probably going to be pretty bad as well. Even if you can perform at an elite level while hating what you do, eventually it'll wear down on you and you'd stop. This rings pretty true of a lot of high school friends i know who did great things like win piano competitions only to never touch a piano once they hit college. The journey was miserable and the moment the goal was achieved (be high enough performing to make it worth mentioning in a college application), they just completely stopped.
+
+In any case, I think the book brought enough different takes on the stories and the focus to make it worth reading even if it does conceptually sounds a lot like Do Hard Things. His story on whistleblowing was pretty mind blowing too and a testament that humans can do great things even when the extrinsic reward is negative.
+
+How to take this and apply it to your own life and to others' lives (as a parent or a manager) is a whole nother topic.
+
+Recommended.
