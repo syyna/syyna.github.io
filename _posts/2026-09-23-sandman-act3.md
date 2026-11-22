@@ -1,0 +1,12 @@
+# Sandman: Act 3
+[Goodreads Review](https://www.goodreads.com/review/show/8968535043)
+
+The last of the available audible for Sandman. This covers Brief Lives and World's End. To be honest, when I was reading the comics, I felt relatively bored by Brief Lives and listening to the audio version gave me the same impression. There IS some merit in pairing up Dream and Delirium but the nature of writing about Delirium is that you have to make her interesting enough without losing her incoherency. That balance is very difficult to write and it shows up quite a bit. She's mostly written as a whimsical but headstrong teenager and Morpheus's job is to mostly be her handler.
+
+There are some side stories that happens within Brief Lives, but nothing as powerful as what happens in A Doll House or even A Game of You. There are quite a number of threads that were never tied up properly, but I think mostly Gaiman mostly wanted Dream to meet Destruction this way. The phrase "no one seeks destruction and comes away unscathed" is the primary phrase you need to remember as it foreshadows the rest of the series.
+
+World's End is basically the short stories that he was doing before given a narrative structure. The story within a story of say, Arabian Nights. There are some good stories within it, particularly the ones about the various methods of bodily disposal and the role of the necropolis, but nothing as game changing as Midsummer's Night Dream, Calliope, or Dream of a Thousand cats.
+
+Still its fairly entertaining and with this, my daughter has read 3/4 of the The Sandman, all before her 14th birthday. When I started her listening on this, it was MOSTLY because that was my FIRST exposure to the first two years of the Sandman's run. I remember being slightly confused and bewildered by The Sandman since most of my experience with comic books has been with the spandex sorts. And this, while being set in the same universe as Superman and Batman, has as much to do with that as a cat has any business being lord of the universe.
+
+I do hope they release the last audiobook which concludes the series. Its probably the least favorite part of the series for me, but given how iconic it is, something like this should still be finished.
